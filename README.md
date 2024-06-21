@@ -1,1 +1,1 @@
-# Temp-Convertor-Internship-by-akash-aniket-akshat-
+# Temp-Convertor-Internship-by-aniket
